@@ -1,4 +1,4 @@
-
+Experience roblox plants vs brainrots like never before with roblox plants vs brainrots secret Scripts, the #1 Script. Includes auto-collect and
 
 
 ---
